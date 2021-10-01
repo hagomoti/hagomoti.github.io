@@ -1,0 +1,1 @@
+# hagomoti.github.io
